@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-My name is Felipe. I am married and have two kids (yet).
+My name is Felipe. I am married and I have two kids (yet).
 
 😄
 
